@@ -10,4 +10,5 @@ interesting nyu cs now requires only 2 letters as well
 
 i got hibiscus + rose tea, so good 😍
 
-i got [this](https://www.farmrio.com/products/bright-blue-mushroom-sketch-knit-sweater) sweater and i cant wear to wear it lol :joy: :mushroom: i use to know the mushroom life cycles back in undergrad, i can memorize them again if i have to
+i got [this](https://www.farmrio.com/products/bright-blue-mushroom-sketch-knit-sweater) sweater and i cant wear to wear it lol :joy: :mushroom: i use to know the mushroom life cycles back in undergrad, i can memorize/remember them again if i have to, my dad said a long time ago that his theory of memory is that it's like a spaghetti noodle that's in a bowl with other noodles and once you can grab on to one end, somehow, you can remember mostly the entire thing, i dunno how close that is to reality, i dont really read stuff in neuroscience
+
