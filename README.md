@@ -10,4 +10,4 @@ interesting nyu cs now requires only 2 letters as well
 
 i got hibiscus + rose tea, so good 😍
 
-i got [this](https://www.farmrio.com/products/bright-blue-mushroom-sketch-knit-sweater) sweater and i cant wear to wear it lol :joy: :mushroom:
+i got [this](https://www.farmrio.com/products/bright-blue-mushroom-sketch-knit-sweater) sweater and i cant wear to wear it lol :joy: :mushroom: i use to know the mushroom life cycles back in undergrad, i can memorize them again if i have to
