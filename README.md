@@ -17,3 +17,5 @@ i got [this](https://www.farmrio.com/products/bright-blue-mushroom-sketch-knit-s
 cold morning yet its almost 80 degrees on saturday
 
 https://twitter.com/nntaleb/status/1716490527997153595 im going to shop on amazon after work for expensive olive oil, cant wait for it to be 5 pm
+
+little bit of a busy day today
