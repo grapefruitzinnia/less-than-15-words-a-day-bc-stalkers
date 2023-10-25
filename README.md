@@ -1,6 +1,6 @@
 # less-than-15-words-a-day-bc-stalkers
 
-- [ ] [get & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
+- [ ] [~get~ & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
 
 one of our servers is being moved tomorrow, so we are all writing docs tomorrow
 
@@ -21,3 +21,5 @@ https://twitter.com/nntaleb/status/1716490527997153595 im going to shop on amazo
 little bit of a busy day today
 
 im presenting during this week's weekly bioinformatics meeting -- have to make slides
+
+tazo iced passion (hibiscus, orange peel, rose hips) & republic of tea: raspberry rose hibiscus are both so good, totes recommend
