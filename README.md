@@ -26,4 +26,4 @@ tazo iced passion (hibiscus, orange peel, rose hips) & republic of tea: raspberr
 
 busyyy dayy
 
-i prolly gained some weight in the past several months, its okay, i have a competitive salary and im under some stress and then i have a personal trainer i see for an hour and he's helping me with running/sprinting before work -- it happens but im still a small/medium so what ... atleast i live in peace
+i prolly gained some weight in the past several months, its okay, i have a competitive salary and im under some stress and then i have a personal trainer i see for an hour and he's helping me with running/sprinting before work and i have lawyers -- it happens but im still a small/medium so what ... atleast i live in peace, im a medium in hervé léger, i could care less what anyone thinks of me
