@@ -25,3 +25,5 @@ im presenting during this week's weekly bioinformatics meeting -- have to make s
 tazo iced passion (hibiscus, orange peel, rose hips) & republic of tea: raspberry rose hibiscus are both so good, totes recommend
 
 busyyy dayy
+
+i prolly gained some weight in the past several months, its okay, i have a competitive salary and im under some stress and then i have a personal trainer i see for an hour and he's helping me with running/sprinting before work -- it happens but im still a small/medium so what ... atleast i live in peace
