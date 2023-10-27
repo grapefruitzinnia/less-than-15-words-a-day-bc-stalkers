@@ -33,3 +33,5 @@ im going to be afk-ish during my PTO
 sudip is saying in the gc this morning that trump is going to win 2024, mannnnn ‼️ those were some really dark times i dont want to go through that whole thing again ughhh
 
 yay my presentation went well -- pseudo-live-demo lol
+
+it'll just be a week and a half of pilates, restaurants and shopping lol, ill be in the city at least a couple of times, ill work on my apps -- prolly finish them hopefully
