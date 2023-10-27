@@ -29,3 +29,5 @@ busyyy dayy
 i prolly gained some weight in the past several months, its okay, i have a competitive salary and im under some stress and then i have a personal trainer i see for an hour and he's helping me with running/sprinting before work and i have lawyers -- it happens but im still a small/medium so what ... atleast i live in peace, im a medium in hervé léger, i could care less what anyone thinks of me, i literally bought sweaters that are a size small from anthropologie the other day, sweatshirts in medium at lululemon -- all with my own money that i earned with my own hard work, please stfu idc what anyone thinks
 
 im going to be afk-ish during my PTO
+
+sudip is saying in the gc this morning that trump is going to win 2024, mannnnn ‼️
