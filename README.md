@@ -31,3 +31,5 @@ i prolly gained some weight in the past several months, its okay, i have a compe
 im going to be afk-ish during my PTO
 
 sudip is saying in the gc this morning that trump is going to win 2024, mannnnn ‼️ those were some really dark times i dont want to go through that whole thing again ughhh
+
+yay my presentation went well -- pseudo-live-demo lol
