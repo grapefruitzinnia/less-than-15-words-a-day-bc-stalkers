@@ -35,3 +35,5 @@ sudip is saying in the gc this morning that trump is going to win 2024, mannnnn 
 yay my presentation went well -- pseudo-live-demo lol
 
 it'll just be a week and a half of pilates, restaurants and shopping lol, ill be in the city at least a couple of times, ill work on my apps -- prolly finish them hopefully
+
+hmm it gets warmer today in the afternoon
