@@ -37,3 +37,6 @@ yay my presentation went well -- pseudo-live-demo lol
 it'll just be a week and a half of pilates, restaurants and shopping lol, ill be in the city at least a couple of times, ill work on my apps -- prolly finish them hopefully
 
 hmm it gets warmer today in the afternoon
+
+working on apps & watching 30 Rock at the gym bc i never finished it lol
+
