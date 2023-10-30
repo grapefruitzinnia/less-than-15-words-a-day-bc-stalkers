@@ -40,3 +40,4 @@ hmm it gets warmer today in the afternoon
 
 working on apps & watching 30 Rock at the gym bc i never finished it lol
 
+what's this apple event later today i wonder
