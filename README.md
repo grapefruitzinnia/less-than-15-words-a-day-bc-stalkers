@@ -41,3 +41,5 @@ hmm it gets warmer today in the afternoon
 working on apps & watching 30 Rock at the gym bc i never finished it lol
 
 what's this apple event later today i wonder ... wow M3 I will get next year ... space black wow finally
+
+my former bioinfo prof who is a comp bio group leader at BMS wants me to apply to the BMS grad internship program -- so i'll have to do that one summer in the future, but it's remote, no need to be in Princeton, NJ and then nomial.ai can work with BMS somehow
