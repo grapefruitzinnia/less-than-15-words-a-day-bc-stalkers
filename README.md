@@ -46,3 +46,6 @@ my former bioinfo prof who is a comp bio group leader at BMS wants me to apply t
 
 Q. what motivates me to apply to phd programs
 A. many things but also a space M3 black macbook pro bahahahaa lol
+
+- [ ] nov 1 - read every article here https://www.growbyginkgo.com/ 
+- [ ] finish apps this week (mostly done anyway)
