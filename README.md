@@ -43,3 +43,6 @@ working on apps & watching 30 Rock at the gym bc i never finished it lol
 what's this apple event later today i wonder ... wow M3 I will get next year ... space black wow finally
 
 my former bioinfo prof who is a comp bio group leader at BMS wants me to apply to the BMS grad internship program -- so i'll have to do that one summer in the future, but it's remote, no need to be in Princeton, NJ and then nomial.ai can work with BMS somehow, his wife got her phd at cornell so he's always happy to write letters, he has to do a guest lecture somehow, maybe ill start a grad club for bioinformatics and have guest speakers once in awhile, people in ny/nj, theres someone in his lab that wrote a well-known-ish bioinfo R package, i can have my current co-workers do a guest lecture too
+
+Q. what motivates me to apply to phd programs
+A. many things but also a space M3 black macbook pro bahahahaa lol
