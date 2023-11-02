@@ -49,3 +49,5 @@ A. many things but also a space M3 black macbook pro bahahahaa lol
 
 - [ ] nov 1 - read every article here https://www.growbyginkgo.com/ 
 - [ ] finish apps this week (mostly done anyway)
+
+reading papers & working on apps today
