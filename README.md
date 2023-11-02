@@ -54,4 +54,4 @@ reading papers & working on apps today
 
 apps and sushi, i want to finish these two apps ~today~ tomorrow (I'm almost done) so i can work on other schools later/tomorrow
 
-I tried kibbeh the other day, I dunno if I can ever make it looks tough to get the shape right
+I tried kibbeh the other day, I dunno if I can ever make it looks tough to get the shape right. ohh [here](https://feelgoodfoodie.net/recipe/baked-kibbeh/) she baked it, maybe i'll make this for thanksgiving
