@@ -51,3 +51,5 @@ A. many things but also a space M3 black macbook pro bahahahaa lol
 - [ ] finish apps this week (mostly done anyway)
 
 reading papers & working on apps today
+
+apps and sushi, i want to finish these two apps today so i can work on other schools later/tomorrow
