@@ -60,4 +60,4 @@ I tried kibbeh the other day, I dunno if I can ever make it looks tough to get t
 
 # [You're a thousand times mine and I am thousand times yours, as if the earth’s reserved for you and I](https://www.youtube.com/watch?v=13982XZKxE8)
 
-i got a new spin bike, its the competitor to the peloton and i think its better, setting that up today, got some new books to read including a new deep learning book. [this will move with me ... i think??](https://www.nordictrack.com/exercise-bikes/s22i-studio-bike)
+i got a new spin bike, its the competitor to the peloton and i think its better, setting that up today, got some new books to read including a new deep learning book. [this will move with me ... i think??](https://www.nordictrack.com/exercise-bikes/s22i-studio-bike) i just want to listen to my audiobooks/podcasts in the morning, im prolly not going to go along with their classes i dunno, looks fun like its pretty immersive, something fun to do before work every day
