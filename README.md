@@ -2,6 +2,8 @@
 
 - [ ] [~get~ & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
 
+- [ ] go to the library to work on apps
+
 one of our servers is being moved tomorrow, so we are all writing docs tomorrow
 
 making a list of cs labs in nyc/maryland my brother can apply for a post-doc
@@ -60,6 +62,6 @@ I tried kibbeh the other day, I dunno if I can ever make it looks tough to get t
 
 # [You're a thousand times mine and I am thousand times yours, as if the earth’s reserved for you and I](https://www.youtube.com/watch?v=13982XZKxE8)
 
-i got a new spin bike, its the competitor to the peloton and i think its better, setting that up today, got some new books to read including a new deep learning book. [this will move with me ... i think??](https://www.nordictrack.com/exercise-bikes/s22i-studio-bike) i just want to listen to my audiobooks/podcasts in the morning, im prolly not going to go along with their classes i dunno, looks fun like its pretty immersive, something fun to do before work every day
+i got a new spin bike, its the competitor to the peloton and i think its better, setting that up today, got some new books to read including a new deep learning book. [this will move with me ... i think??](https://www.nordictrack.com/exercise-bikes/s22i-studio-bike) i just want to listen to my audiobooks/podcasts in the morning, im prolly not going to go along with their classes i dunno, looks fun like its pretty immersive, something fun to do before work every day. this bike is great, im so happy with it
 
-i will submit my apps in time, it's a lot of work to bring down the word count but i'll finish it in time
+i will submit my apps in time, it's a lot of work to bring down the word count but i'll finish it in time -- i have a sticky note to remind me all of the app deadlines next to my pillow and thats my level of dedication lol, i'll finish it, PTO was not the best time to do it
