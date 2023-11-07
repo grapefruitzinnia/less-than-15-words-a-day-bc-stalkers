@@ -66,5 +66,6 @@ i got a new spin bike, its the competitor to the peloton and i think its better,
 
 i will submit my apps in time, it's a lot of work to bring down the word count but i'll finish it in time -- i have a sticky note to remind me all of the app deadlines next to my pillow and thats my level of dedication lol, i'll finish it, PTO was not the best time to do it
 
-once i ~get~ earn an acceptance, i will quit my job and live off my savings/study until the semester starts, and i cant wait to do that
+<!-- once i ~get~ earn an acceptance, i will quit my job and live off my savings/study until the semester starts, and i cant wait to do that -->
 
+back from the city, very sleepy
