@@ -72,5 +72,5 @@ back from the city, very sleepy
 
 rose face mask and then sleep!
 
-workout on new bike then catch up on work emails before work, then theres an afternoon meeting on taking over a huge sequencing project from someone going on vacation, i wonder who they will give it to bc everyone else is already so busy
+workout on new bike then catch up on work emails before work, then theres an afternoon meeting on taking over a huge sequencing project from someone going on vacation, i wonder who they will give it to bc everyone else is already so busy; its great i dont have to commute to the gym in the morning bc of my new bike
 
