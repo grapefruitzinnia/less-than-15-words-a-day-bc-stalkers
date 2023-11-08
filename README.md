@@ -69,3 +69,5 @@ i will submit my apps in time, it's a lot of work to bring down the word count b
 <!-- once i ~get~ earn an acceptance, i will quit my job and live off my savings/study until the semester starts, and i cant wait to do that -->
 
 back from the city, very sleepy
+
+rose face mask and then sleep!
