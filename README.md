@@ -71,3 +71,6 @@ i will submit my apps in time, it's a lot of work to bring down the word count b
 back from the city, very sleepy
 
 rose face mask and then sleep!
+
+workout on new bike then catch up on work emails before work, then theres an afternoon meeting on taking over a huge sequencing project from someone going on vacation, i wonder who they will give it to bc everyone else is already so busy
+
