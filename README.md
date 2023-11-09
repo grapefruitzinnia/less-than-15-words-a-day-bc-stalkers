@@ -77,3 +77,5 @@ workout on new bike then catch up on work emails before work, then theres an aft
 i helped my coworker by fixing a python/pandas bug, one of the scripts i migrated was retired while i was on vacation ohhhh well, one of my SOPs (standard operating protocol not statement of purpose) was accepted and another was rejected bc i need to be more specific to where the data is located
 
 sooo tired 😴 
+
+i have books i have to read but i want more lol, i saw some new ones
