@@ -80,4 +80,4 @@ sooo tired 😴
 
 i have books i have to read but i want more lol, i saw some new ones
 
-im trying this hibiscus tea hot rather than cold, its okay, a little different, i prefer cold though
+im trying this hibiscus tea hot rather than cold, its okay, a little different, i prefer cold though. i got [these](https://www.manoloblahnik.com/us/scolto-25229.html) i have added them to my collection, cant wait for spring/summer
