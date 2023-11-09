@@ -75,3 +75,5 @@ rose face mask and then sleep!
 workout on new bike then catch up on work emails before work, then theres an afternoon meeting on taking over a huge sequencing project from someone going on vacation, i wonder who they will give it to bc everyone else is already so busy; its great i dont have to commute to the gym in the morning bc of my new bike
 
 i helped my coworker by fixing a python/pandas bug, one of the scripts i migrated was retired while i was on vacation ohhhh well, one of my SOPs (standard operating protocol not statement of purpose) was accepted and another was rejected bc i need to be more specific to where the data is located
+
+sooo tired 😴 
