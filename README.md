@@ -79,3 +79,5 @@ i helped my coworker by fixing a python/pandas bug, one of the scripts i migrate
 sooo tired 😴 
 
 i have books i have to read but i want more lol, i saw some new ones
+
+im trying this hibiscus tea hot rather than cold, its okay, a little different, i prefer cold though
