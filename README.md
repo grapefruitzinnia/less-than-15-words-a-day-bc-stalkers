@@ -95,3 +95,5 @@ i have a lot of deep learning books that i have to go through anyway, dont worry
 i applied to some places today! its going to be okay afterall, let's see what happens
 
 there were other layoffs going on in other teams thoughout the summer including SEs, it got us eventually, oh well
+
+this severance contract/form/NDA says i cant talk about the severance package hmmmm
