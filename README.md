@@ -84,4 +84,4 @@ im trying this hibiscus tea hot rather than cold, its okay, a little different, 
 
 the spin class on my bike this morning was biking through an island, i maybe want to go to these places one day haha
 
-they should have one for nyc: "Your bike has come to a full stop because you were hit like a passenger door"
+they should have one for nyc: "Your bike has come to a full stop because you were hit with a passenger door and that's it"
