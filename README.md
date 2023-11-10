@@ -93,3 +93,5 @@ i knew it was going to happen soon and it actually happened, i get a severance p
 i have a lot of deep learning books that i have to go through anyway, dont worry about me, im fine, its just ughhh, we are in a recession and that's just ughhh too
 
 i applied to some places today! its going to be okay afterall, let's see what happens
+
+there were other layoffs going on in other teams thoughout the summer including SEs, it got us eventually, oh well
