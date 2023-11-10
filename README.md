@@ -90,4 +90,4 @@ they should have one for nyc: "Your bike has come to a full stop because you wer
 
 i knew it was going to happen soon and it actually happened, i get a severance package :) just have to find something else, im glad i have a lot of savings, Alhamdulillah
 
-i have a lot of deep learning books that i have to go through anyway, dont worry about me, im fine, its just ughhh
+i have a lot of deep learning books that i have to go through anyway, dont worry about me, im fine, its just ughhh, we are in a recession and that's just ughhh too
