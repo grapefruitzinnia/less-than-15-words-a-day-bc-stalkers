@@ -86,4 +86,6 @@ the spin class on my bike this morning was biking through an island, i maybe wan
 
 they should have one for nyc: "Your bike has come to a full stop because you were hit with a passenger door and that's it"
 
-we all have to watch 12 1-hr lectures with quizzes on biomedical techniques and stuff before winter break starts again, that's 12 hrs of lectures
+~we all have to watch 12 1-hr lectures with quizzes on biomedical techniques and stuff before winter break starts again, that's 12 hrs of lectures~
+
+i knew it was going to happen soon and it actually happened, i get a severance package :) just have to find something else, im glad i have a lot of savings, Alhamdulillah
