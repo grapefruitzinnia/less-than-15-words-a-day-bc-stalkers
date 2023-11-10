@@ -89,3 +89,5 @@ they should have one for nyc: "Your bike has come to a full stop because you wer
 ~we all have to watch 12 1-hr lectures with quizzes on biomedical techniques and stuff before winter break starts again, that's 12 hrs of lectures~
 
 i knew it was going to happen soon and it actually happened, i get a severance package :) just have to find something else, im glad i have a lot of savings, Alhamdulillah
+
+i have a lot of deep learning books that i have to go through anyway, dont worry about me, im fine, its just ughhh
