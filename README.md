@@ -54,7 +54,7 @@ A. many things but also a space M3 black macbook pro bahahahaa lol
 - [ ] nov 1 - read every article here https://www.growbyginkgo.com/ 
 - [ ] finish apps this week (mostly done anyway)
 
-reading papers & working on apps today
+<!-- reading papers & working on apps today
 
 apps and sushi, i want to finish these two apps ~today~ ~tomorrow~ soon (i just have to think about something) (I'm almost done) so i can work on other schools later/tomorrow
 
@@ -70,6 +70,7 @@ i will submit my apps in time, it's a lot of work to bring down the word count b
 
 <!-- once i ~get~ earn an acceptance, i will quit my job and live off my savings/study until the semester starts, and i cant wait to do that -->
 
+<!--
 back from the city, very sleepy
 
 rose face mask and then sleep!
@@ -107,3 +108,9 @@ i want to work at the ny genome center but they're not really hiring ughh and th
 went to PT for an hour, had panera for lunch, watching 30 rock, thinking of some blog posts ill make this week about stuff i learned at work, going to try and finish one app by tomorrow hopefully
 
 i dont want to talk about it too much bc it relates to what i want to do with nomial.ai, but i didnt work for a bioinformatics company, i worked for a biotech/sample storage company that had a bioinformatics team and our clients have their own bioinformatics team that did the analysis so its not a great business to have our bioinformatics team do the analysis for our clients if they can do it themselves. i was laid-off not because of performance, that was made clear to me, its still surprising bc our team was so small anyway, it is what it is. im okay, moving on to the next chapter of work and hopefully it'll also be remote. i learned alot though, i taught my teammates a lot too. working on apps and trying to finish them this month. it was a great job though, Alhamdulillah, now i'll be able to go to pilates during the weekdays ... my personal trainer said hes going to look out for me during the week now lol
+
+-->
+
+# im okay dont worry about me
+
+after my brother is done with his program early next year, the plan is that we take a trip to either hawaii or paris spring 2024, im looking forward to that ... paris for the pictures (my manolos would go with me lol) and hawaii for the beaches ... it's a toss up which vacation plan is better.
