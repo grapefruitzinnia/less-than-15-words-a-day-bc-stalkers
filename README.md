@@ -109,6 +109,8 @@ went to PT for an hour, had panera for lunch, watching 30 rock, thinking of some
 
 i dont want to talk about it too much bc it relates to what i want to do with nomial.ai, but i didnt work for a bioinformatics company, i worked for a biotech/sample storage company that had a bioinformatics team and our clients have their own bioinformatics team that did the analysis so its not a great business to have our bioinformatics team do the analysis for our clients if they can do it themselves. i was laid-off not because of performance, that was made clear to me, its still surprising bc our team was so small anyway, it is what it is. im okay, moving on to the next chapter of work and hopefully it'll also be remote. i learned alot though, i taught my teammates a lot too. working on apps and trying to finish them this month. it was a great job though, Alhamdulillah, now i'll be able to go to pilates during the weekdays ... my personal trainer said hes going to look out for me during the week now lol
 
+was i really being challenged at work? tbh eventually i was not, eventually it was boring
+
 -->
 
 # im okay dont worry about me
