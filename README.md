@@ -101,3 +101,5 @@ this severance contract/form/NDA says i cant talk about the severance package hm
 i knew it was going to happen but i was hoping it would be next year instead ughhhhh i think i also just want a break too but im just applying for now
 
 i want to work at the ny genome center but they're not really hiring ughh and the commute to the city will be tough, i think its hybrid, id take an uber on the days id have to be in the city, i think that's like $70 each way
+
+went to PT for an hour, had panera for lunch, watching 30 rock, thinking of some blog posts ill make this week about stuff i learned at work, going to try and finish one app by tomorrow hopefully
