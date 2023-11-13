@@ -118,3 +118,5 @@ was i really being challenged at work? tbh eventually i was not, eventually it w
 after my brother is done with his program early next year, the plan is that we take a trip to either hawaii or paris spring 2024, im looking forward to that ... paris for the pictures (my manolos would go with me lol) and hawaii for the beaches ... it's a toss up which vacation plan is better. i was watching a show on netflix about this realtor family that sells property in paris, interesting world, its in french though
 
 a little busy todayy
+
+reading some papers this morning
