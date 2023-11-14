@@ -120,3 +120,5 @@ after my brother is done with his program early next year, the plan is that we t
 a little busy todayy
 
 reading some papers this morning, same thing today, more papers
+
+theres a hiring freeze at my former manager's company which is also in nj and does bioinformatics, what a crazy world
