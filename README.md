@@ -6,7 +6,9 @@
 
 - [ ] sign up for datacamp again, finish the ML, AI stuff
 
-- [ ] buy a calc3-4 book with solutions
+- [ ] buy a calc3-4 book with solutions, just do some problems everyday
+
+- [ ] find some courses on edx/coursera that deal with calc 3-4
 
 one of our servers is being moved tomorrow, so we are all writing docs tomorrow
 
