@@ -132,3 +132,5 @@ cool, a possible first-round interview with NYU for a bioinfo position -- i hope
 maybe i can finish all of my apps this week
 
 https://www.newyorker.com/magazine/2023/11/20/a-coder-considers-the-waning-days-of-the-craft  hmmmm interesting 
+
+the personal statement/writing prompt for BME is a lot of work to write helpppppp meeee i dunno what to write ... what engineering anecdotes do I have like I dunno
