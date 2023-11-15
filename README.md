@@ -130,3 +130,5 @@ theres a hiring freeze at my former manager's company which is also in nj and do
 cool, a possible first-round interview with NYU for a bioinfo position -- i hope its remote
 
 maybe i can finish all of my apps this week
+
+https://www.newyorker.com/magazine/2023/11/20/a-coder-considers-the-waning-days-of-the-craft  hmmmm interesting 
