@@ -2,6 +2,8 @@
 
 - [ ] [~get~ & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
 
+- [ ] PyData Global 2023: December 6th – 8th
+
 - [ ] 1. ~go to the library to~ work on apps, finish all apps first -- biggest priority, asap
 
 - [ ] 2. sign up for datacamp again, finish the ML, AI stuff
