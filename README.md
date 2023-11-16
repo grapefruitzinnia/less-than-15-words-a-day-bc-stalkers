@@ -9,6 +9,7 @@
 - [ ] 3. ~buy a calc3-4 book with solutions,~ just do some problems everyday -- okay i found a couple with solutions, i really need to review from the beginning like ch 1, it doesnt look so hard now though
 
 - [ ] 4. find some courses on edx/coursera that deal with calc 3-4. i found some
+* [math for engineers](https://www.coursera.org/specializations/mathematics-engineers) -- this is good, i can do this, it says it takes 3 months
 
 - [ ] 5. go to the princeton univ./rutgers library to review calc problems bc why not
 
