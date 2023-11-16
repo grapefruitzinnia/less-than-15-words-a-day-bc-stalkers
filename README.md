@@ -148,3 +148,11 @@ https://www.newyorker.com/magazine/2023/11/20/a-coder-considers-the-waning-days-
 makes programming accessible for the disadvantaged too and that wasn't included in the article, ChatGPT is incorrect at times and that wasn't mentioned either, it still needs a human element after it presents a solution
 
 the personal statement/writing prompt for BME is a lot of work to write helpppppp meeee i dunno what to write ... what engineering anecdotes do I have like I dunno
+
+# A wise man was once asked:
+# "Who do you value most among people?"
+# He replied: "The one whose manners are most noble,
+# whose company is most beneficial,
+# whose intention is most pure,
+# whose parting is most difficult to bear,
+# and who is like musk: the older they become, the more valuable it is." - Sh. Hamza Yusuf
