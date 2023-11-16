@@ -2,13 +2,21 @@
 
 - [ ] [~get~ & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
 
-- [ ] go to the library to work on apps
+- [ ] 1. ~go to the library to~ work on apps, finish all apps first -- biggest priority, asap
 
-- [ ] sign up for datacamp again, finish the ML, AI stuff
+- [ ] 2. sign up for datacamp again, finish the ML, AI stuff
 
-- [ ] buy a calc3-4 book with solutions, just do some problems everyday
+- [ ] 3. ~buy a calc3-4 book with solutions,~ just do some problems everyday -- okay i found a couple with solutions, i really need to review from the beginning like ch 1, it doesnt look so hard now though
 
-- [ ] find some courses on edx/coursera that deal with calc 3-4
+- [ ] 4. find some courses on edx/coursera that deal with calc 3-4. i found some
+
+- [ ] 5. go to the princeton univ./rutgers library to review calc problems bc why not
+
+- [ ] 6. rewrite code in Rust/get a big Rust book. i like reading from a book instead of youtube
+
+- [ ] 7. learn LaTeX
+
+- [ ] 8. host [etherpad](https://etherpad.org/) somewhere
 
 one of our servers is being moved tomorrow, so we are all writing docs tomorrow
 
