@@ -149,7 +149,7 @@ makes programming accessible for the disadvantaged too and that wasn't included 
 
 the personal statement/writing prompt for BME is a lot of work to write helpppppp meeee i dunno what to write ... what engineering anecdotes do I have like I dunno
 
-i watched a turkish romcom yesterday, it was very sweet lol
+i watched a turkish romcom yesterday, it was very sweet lol, probably in my top 30 movies
 
 # A wise man was once asked:
 # "Who do you value most among people?"
