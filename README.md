@@ -151,6 +151,8 @@ the personal statement/writing prompt for BME is a lot of work to write helppppp
 
 i watched a turkish romcom yesterday, it was very sweet lol, probably in my top 30 movies
 
+PT, sushi, some apps, hanging out with my dad this morning lol
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
