@@ -153,6 +153,8 @@ i watched a turkish romcom yesterday, it was very sweet lol, probably in my top 
 
 PT, sushi, some apps, hanging out with my dad this morning lol
 
+maybe pilates today or tomorrow, working out on my spin bike & working on my apps
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
