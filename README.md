@@ -155,6 +155,8 @@ PT, sushi, some apps, hanging out with my dad this morning lol
 
 maybe pilates today or tomorrow, working out on my spin bike & working on my apps ... i was at pilates earlier and i realized i should just enjoy whatever is happening in my life for what it is and im so happy i dont have to work for some time, i wonder how my former coworkers are going on, i was the only person who wrote code in python, two other wrote some code in unix, another used R, oh well, they gave me my severance without any problems
 
+its not so much about what i have to write in the personal statements and etc. its that i must figure out generally what i want to do for the next few years, its a lot to think about
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
