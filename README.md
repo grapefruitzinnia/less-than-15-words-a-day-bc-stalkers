@@ -159,6 +159,8 @@ its not so much about what i have to write in the personal statements and etc. i
 
 what is openai going to do now ... why do some companies make bad and poor decisions
 
+["AI-focused YC founders"](https://twitter.com/ycombinator/status/1727021237271245155) wow interesting
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
