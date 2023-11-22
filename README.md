@@ -161,6 +161,8 @@ what is openai going to do now ... why do some companies make bad and poor decis
 
 ["AI-focused YC founders"](https://twitter.com/ycombinator/status/1727021237271245155) wow interesting
 
+im learning a lot from riding my bike every morning lol, its really fun, its very futuristic, the classes and locations are so interesting
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
