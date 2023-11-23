@@ -163,7 +163,7 @@ what is openai going to do now ... why do some companies make bad and poor decis
 
 im learning a lot from riding my bike every morning lol, its really fun, its very futuristic, the classes and locations are so interesting
 
-happy early thanksgiving!! <3
+happy early thanksgiving!! <3 busy day!!
 
 # A wise man was once asked:
 # "Who do you value most among people?"
