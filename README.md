@@ -167,6 +167,8 @@ happy early thanksgiving!! <3 busy day!!
 
 wow interesting https://twitter.com/fchollet/status/1727409374417797502
 
+😂 https://twitter.com/b0rk/status/1727751504696578510
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
