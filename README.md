@@ -169,6 +169,8 @@ wow interesting https://twitter.com/fchollet/status/1727409374417797502
 
 😂 https://twitter.com/b0rk/status/1727751504696578510
 
+theres a lot of weird people on the road at 4:30 am
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
