@@ -175,6 +175,8 @@ just busy with stuff
 
 just came back from seeing hasan minhaj on tour in nj, he's really funny, he made some good jokes about crypto/bitcoin haha
 
+trying to finish an app today, hopefully i can do it!!
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
