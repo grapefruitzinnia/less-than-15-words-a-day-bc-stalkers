@@ -173,7 +173,7 @@ theres a lot of weird people on the road at 4:30 am
 
 just busy with stuff
 
-just came back from seeing hasan minhaj on tour in nj, he's really funny
+just came back from seeing hasan minhaj on tour in nj, he's really funny, he made some good jokes about crypto/bitcoin haha
 
 # A wise man was once asked:
 # "Who do you value most among people?"
