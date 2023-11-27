@@ -175,7 +175,7 @@ just busy with stuff
 
 just came back from seeing hasan minhaj on tour in nj, he's really funny, he made some good jokes about crypto/bitcoin haha
 
-trying to finish an app today, hopefully i can do it!!
+trying to finish an app today, hopefully i can do it!! 1,054 words and it needs to be under 1,000 words ahhh slowly but surely this is getting done today
 
 # A wise man was once asked:
 # "Who do you value most among people?"
