@@ -177,7 +177,7 @@ just came back from seeing hasan minhaj on tour in nj, he's really funny, he mad
 
 trying to finish an app today, hopefully i can do it!! 1,054 words and it needs to be under 1,000 words ahhh slowly but surely this is getting done today
 
-ill def finish it tomorrow!!
+ill def finish it tomorrow!! finishing uppp todayyy!!
 
 # A wise man was once asked:
 # "Who do you value most among people?"
