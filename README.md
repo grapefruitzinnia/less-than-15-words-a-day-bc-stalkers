@@ -184,6 +184,8 @@ ill def finish it tomorrow!! finishing uppp todayyy!! done!! time for some sushi
 
 reading something, watching something later, closing my tabs, opening new ones lolol
 
+i wrote this script at work that runs every 2 weeks and its part of a clinical project, i cant believe its running even though i was laid off, so crazy
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
