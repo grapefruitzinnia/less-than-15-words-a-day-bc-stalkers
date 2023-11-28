@@ -186,6 +186,8 @@ reading something, watching something later, closing my tabs, opening new ones l
 
 i wrote this script at work that runs every 2 weeks and its part of a clinical project, i cant believe its running even though i was laid off, so crazy
 
+https://twitter.com/poeticalphotos/status/1729583062835413034 cant wait for the summer, its so cold outside
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
