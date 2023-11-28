@@ -182,7 +182,7 @@ trying to finish an app today, hopefully i can do it!! 1,054 words and it needs 
 ill def finish it tomorrow!! finishing uppp todayyy!! done!! time for some sushi and then i can finish up my apps at other schools, so much to do!!
 -->
 
-reading something, watching something later
+reading something, watching something later, closing my tabs, opening new ones lolol
 
 # A wise man was once asked:
 # "Who do you value most among people?"
