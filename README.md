@@ -21,6 +21,7 @@
 
 - [ ] 8. host [etherpad](https://etherpad.org/) somewhere
 
+<!--
 reward for doing #1-#8: an LV bag which i will buy for myself 😅
 
 one of our servers is being moved tomorrow, so we are all writing docs tomorrow
@@ -84,7 +85,7 @@ I tried kibbeh the other day, I dunno if I can ever make it looks tough to get t
 i got a new spin bike, its the competitor to the peloton and i think its better, setting that up today, got some new books to read including a new deep learning book. [this will move with me ... i think??](https://www.nordictrack.com/exercise-bikes/s22i-studio-bike) i just want to listen to my audiobooks/podcasts in the morning, im prolly not going to go along with their classes i dunno, looks fun like its pretty immersive, something fun to do before work every day. this bike is great, im so happy with it
 
 i will submit my apps in time, it's a lot of work to bring down the word count but i'll finish it in time -- i have a sticky note to remind me all of the app deadlines next to my pillow and thats my level of dedication lol, i'll finish it, PTO was not the best time to do it
-
+-->
 <!-- once i ~get~ earn an acceptance, i will quit my job and live off my savings/study until the semester starts, and i cant wait to do that -->
 
 <!--
@@ -132,6 +133,7 @@ was i really being challenged at work? tbh eventually i was not, eventually it w
 
 # im okay dont worry about me
 
+<!--
 after my brother is done with his program early next year, the plan is that we take a trip to either hawaii or paris spring 2024, im looking forward to that ... paris for the pictures (my manolos would go with me lol) and hawaii for the beaches ... it's a toss up which vacation plan is better. i was watching a show on netflix about this realtor family that sells property in paris, interesting world, its in french though
 
 a little busy todayy
@@ -178,6 +180,9 @@ just came back from seeing hasan minhaj on tour in nj, he's really funny, he mad
 trying to finish an app today, hopefully i can do it!! 1,054 words and it needs to be under 1,000 words ahhh slowly but surely this is getting done today
 
 ill def finish it tomorrow!! finishing uppp todayyy!! done!! time for some sushi and then i can finish up my apps at other schools, so much to do!!
+-->
+
+reading something, watching something later
 
 # A wise man was once asked:
 # "Who do you value most among people?"
