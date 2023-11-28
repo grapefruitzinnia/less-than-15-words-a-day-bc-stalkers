@@ -188,6 +188,8 @@ i wrote this script at work that runs every 2 weeks and its part of a clinical p
 
 https://twitter.com/poeticalphotos/status/1729583062835413034 cant wait for the summer, its so cold outside
 
+https://twitter.com/thekitze/status/1729472587028177317 lolol
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
