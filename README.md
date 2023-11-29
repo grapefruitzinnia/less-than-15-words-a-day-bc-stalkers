@@ -190,6 +190,9 @@ https://twitter.com/poeticalphotos/status/1729583062835413034 cant wait for the 
 
 https://twitter.com/thekitze/status/1729472587028177317 lolol
 
+i went to whole foods after the gym this morning, its sooo cold outside, accidentally got croissants that are vegan ... accidentally, i wonder how they are, i guess ill have to find out 
+
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
