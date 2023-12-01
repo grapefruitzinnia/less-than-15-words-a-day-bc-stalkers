@@ -192,6 +192,14 @@ https://twitter.com/thekitze/status/1729472587028177317 lolol
 
 i went to whole foods after the gym this morning, its sooo cold outside, accidentally got croissants that are vegan ... accidentally, i wonder how they are, i guess ill have to find out 
 
+| Things I can’t talk about here | Why                                                                                                                                                                              |
+| ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
+| Myself                         | Stalkers                                                                                                                                                                         |
+| Things I like                  | Stalkers                                                                                                                                                                         |
+| Things I do for fun            | Stalkers, I don't want someone to show up in person                                                                                                                              |
+| Almost everything else         | It's for my lawyers                                                                                                                                                              |
+
 
 # A wise man was once asked:
 # "Who do you value most among people?"
