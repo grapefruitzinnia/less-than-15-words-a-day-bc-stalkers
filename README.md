@@ -192,6 +192,8 @@ https://twitter.com/thekitze/status/1729472587028177317 lolol
 
 i went to whole foods after the gym this morning, its sooo cold outside, accidentally got croissants that are vegan ... accidentally, i wonder how they are, i guess ill have to find out 
 
+PT was so tough todayyyy
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
