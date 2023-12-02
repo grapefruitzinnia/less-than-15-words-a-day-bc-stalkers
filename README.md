@@ -192,7 +192,7 @@ https://twitter.com/thekitze/status/1729472587028177317 lolol
 
 i went to whole foods after the gym this morning, its sooo cold outside, accidentally got croissants that are vegan ... accidentally, i wonder how they are, i guess ill have to find out 
 
-PT was so tough todayyyy
+PT was so tough todayyyy, near the beach today
 
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
