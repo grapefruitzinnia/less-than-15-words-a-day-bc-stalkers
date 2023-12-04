@@ -200,6 +200,8 @@ https://twitter.com/mediterraneanae/status/1730934566750224676 woww cool
 
 i was going to make pecan mammoul this month, i have to gather the ingredients, i was thinking of adding the process to my blog which is a tech blog but i dunno
 
+i always drink coffee, but i like tea sometimes, i like earl grey black tea with milk, its like the best
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
