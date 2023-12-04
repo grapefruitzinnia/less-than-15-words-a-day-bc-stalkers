@@ -204,6 +204,8 @@ i always drink coffee, but i like tea sometimes, i like earl grey black tea with
 
 i have to get some groceries for my mom this morning before lunch time, im so sore from my spin bike maybe ill take a break today
 
+i got new SNEAKS today, my old salomon ones are a decade old but they're still good, my patagonia ones are too rigid
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
