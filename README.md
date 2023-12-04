@@ -202,6 +202,8 @@ i was going to make pecan mammoul this month, i have to gather the ingredients, 
 
 i always drink coffee, but i like tea sometimes, i like earl grey black tea with milk, its like the best
 
+i have to get some groceries for my mom this morning before lunch time, im so sore from my spin bike maybe ill take a break today
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
