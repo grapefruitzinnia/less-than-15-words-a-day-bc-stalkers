@@ -212,6 +212,8 @@ no cheese can be better than sheep's milk roquefort, its moldy gold 😍
 
 if anyone asks me what i did in 2023, my answer would be to become addicted to BLUE CHEESE the best stuff ever
 
+14 Across: "cheek swab material" ; answer: "DNA"
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
