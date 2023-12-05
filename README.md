@@ -206,6 +206,9 @@ i have to get some groceries for my mom this morning before lunch time, im so so
 
 i got new SNEAKS today, my old salomon ones are a decade old but they're still good, my patagonia ones are too rigid
 
+[ooo i like thiss](https://www.youtube.com/watch?v=93yWBvg4--Q) shes palestinian-canadian 
+
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
