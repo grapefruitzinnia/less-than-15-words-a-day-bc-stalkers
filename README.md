@@ -214,7 +214,7 @@ if anyone asks me what i did in 2023, my answer would be to become addicted to B
 
 14 Across: "cheek swab material" ; answer: "DNA"
 
-pydata global online conf, that's going on, has an important talk i cant miss
+pydata global online conf, that's going on, has an important talk i cant miss, wow there were some great talks!!
 
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
