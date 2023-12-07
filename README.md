@@ -218,6 +218,8 @@ pydata global online conf, that's going on, has an important talk i cant miss, w
 
 working on my last phd app, clam chowder for lunchh
 
+you know what i noticed in the pydata talks ... people are using generative ai for pictures in their slides to explain concepts e.g. dall e, very interesting
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
