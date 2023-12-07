@@ -216,6 +216,8 @@ if anyone asks me what i did in 2023, my answer would be to become addicted to B
 
 pydata global online conf, that's going on, has an important talk i cant miss, wow there were some great talks!!
 
+working on my last phd app, clam chowder for lunchh
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
