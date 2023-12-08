@@ -2,7 +2,9 @@
 
 - [ ] [~get~ & read book](https://www.amazon.com/Dear-Founder-Letters-Manages-Business/dp/1250195640/)
 
-- [ ] PyData Global 2023: December 6th – 8th
+- [x] PyData Global 2023: December 6th – 8th
+
+- [x] get some rust books!!!
 
 - [ ] 1. ~go to the library to~ work on apps, finish all apps first -- biggest priority, asap
 
@@ -225,6 +227,8 @@ there were some really great pydata talks yesterday, lots of rust too
 i bought another pair of chloe boots 🫣 why ... bc they are really nice 😍 and i wanted them, and im so bored 😇
 
 pydata gave me some better ideas on what i should be spending my time on. i took notes, i have a spreadsheet of stuff i want to learn and how
+
+i found some rust things to keep me busy
 
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
