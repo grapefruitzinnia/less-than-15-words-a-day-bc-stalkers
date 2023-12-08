@@ -222,6 +222,8 @@ you know what i noticed in the pydata talks ... people are using generative ai f
 
 there were some really great pydata talks yesterday, lots of rust too
 
+i bought another pair of chloe boots 🫣 why ... bc they are really nice 😍 and i wanted them, and im so bored 😇
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
