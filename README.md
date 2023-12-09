@@ -230,6 +230,8 @@ pydata gave me some better ideas on what i should be spending my time on. i took
 
 i found some rust things to keep me busy
 
+a little busy today, warm outside!!
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
