@@ -234,6 +234,8 @@ a little busy today, warm outside!!
 
 all of the sushi restaurants dont open until noon today bc its sunday ughhh
 
+trying to make the dough for my vanilla pecan mammouls today, then i can bake them tomorrow when the dough is ready
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
