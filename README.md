@@ -238,6 +238,8 @@ trying to make the dough for my vanilla pecan mammouls today, then i can bake th
 
 i found some interesting things with rust, ive been using rustc instead of cargo by accident and no wonder i was having issues ... okay well i found something interesting to do, theres a cheminformatics library i want to try as well afterwards
 
+i have to finish up my last phd app, its due this friday 🥹
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
