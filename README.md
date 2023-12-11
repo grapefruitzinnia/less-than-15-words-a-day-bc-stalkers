@@ -240,6 +240,8 @@ i found some interesting things with rust, ive been using rustc instead of cargo
 
 i have to finish up my last phd app, its due this friday 🥹
 
+have you tried this panera caffeinated lemonade, how reckless is that, why does lemonade have caffeine, they should have added the words "tea" somehow if it has caffeine and people would know it has caffeine, i wouldnt try it bc of the sugar, i avoid sugar as much as i can unless, sparingly i consume sugar, i dont add sugar to my coffee/tea
+
 | Things I can’t talk about here | Why                                                                                                                                                                              |
 | ------------------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | My thesis ideas                | It's one thing that I get scooped by someone, it's so embarrassing that it's going to be someone who can't even grasp my idea and does a mediocre job trying to scoop it, lolsad |
