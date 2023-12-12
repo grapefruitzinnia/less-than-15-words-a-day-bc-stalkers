@@ -242,6 +242,8 @@ i have to finish up my last phd app, its due this friday 🥹
 
 have you tried this panera caffeinated lemonade, how reckless is that, why does lemonade have caffeine, they should have added the words "tea" somehow if it has caffeine and people would know it has caffeine, i wouldnt try it bc of the sugar, i avoid sugar as much as i can unless, sparingly i consume sugar, i dont add sugar to my coffee/tea
 
+im really busy, i have my umd cs phd app to finish up this week
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
