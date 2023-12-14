@@ -244,6 +244,8 @@ have you tried this panera caffeinated lemonade, how reckless is that, why does 
 
 im really busy, i have my umd cs phd app to finish up this week, done with my umd cs app, done with all of my apps, finally some free time.
 
+i went outside to take out the trash and it's so cold outside
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
