@@ -246,6 +246,8 @@ im really busy, i have my umd cs phd app to finish up this week, done with my um
 
 i went outside to take out the trash and it's so cold outside
 
+hibiscus tea on a friday late afternoon 😍
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
