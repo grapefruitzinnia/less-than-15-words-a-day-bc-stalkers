@@ -248,6 +248,8 @@ i went outside to take out the trash and it's so cold outside
 
 hibiscus tea on a friday late afternoon 😍
 
+def going to make mammouls today lol, everyone is asking me when am i going to make them, like i have all of the ingredients out on the kitchen counter, i just needed the "mahlab" to get delivered by amazon, and it was this morning, so im ready to make **vanilla pecan mammouls** the best ever lol, my own recipe
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
