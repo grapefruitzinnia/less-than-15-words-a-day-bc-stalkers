@@ -8,7 +8,8 @@
 
 - [x] 1. ~go to the library to~ work on apps, finish all apps first -- biggest priority, asap
 
-- [ ] **2. sign up for datacamp again, finish the ML, AI stuff**
+- [x] **2. sign up for datacamp again**
+  - [ ] **finish the ML, AI stuff** (current)
 
 - [ ] 3. ~buy a calc3-4 book with solutions,~ just do some problems everyday -- okay i found a couple with solutions, i really need to review from the beginning like ch 1, it doesnt look so hard now though
 
