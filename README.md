@@ -8,7 +8,7 @@
 
 - [x] 1. ~go to the library to~ work on apps, finish all apps first -- biggest priority, asap
 
-- [ ] 2. sign up for datacamp again, finish the ML, AI stuff
+- [ ] **2. sign up for datacamp again, finish the ML, AI stuff**
 
 - [ ] 3. ~buy a calc3-4 book with solutions,~ just do some problems everyday -- okay i found a couple with solutions, i really need to review from the beginning like ch 1, it doesnt look so hard now though
 
@@ -251,6 +251,8 @@ hibiscus tea on a friday late afternoon 😍
 def going to make mammouls today lol, everyone is asking me when am i going to make them, like i have all of the ingredients out on the kitchen counter, i just needed the "mahlab" to get delivered by amazon, and it was this morning, so im ready to make **vanilla pecan mammouls** the best ever lol, my own recipe
 
 looking through the trader joes flyer for new blue cheeses lolol, and i found some 🧀
+
+gotta sign up for datacamp today now that my apps are done, i think theyre having some discount so that's good
 
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
