@@ -257,6 +257,8 @@ gotta sign up for datacamp today now that my apps are done, i think theyre havin
 
 i usually go out to get coffee in the afternoon but i skipped today bc of the weather
 
+i got trader joe's clam chowder 😍 fav winter soup
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
