@@ -259,6 +259,8 @@ i usually go out to get coffee in the afternoon but i skipped today bc of the we
 
 i got trader joe's clam chowder 😍 fav winter soup
 
+going out to eat with my parents then some tv then sleep!! had a busy day
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
