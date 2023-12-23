@@ -261,6 +261,8 @@ i got trader joe's clam chowder 😍 fav winter soup
 
 going out to eat with my parents then some tv then sleep!! had a busy day
 
+writing some cover letters for some bioinformatics related jobs
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
