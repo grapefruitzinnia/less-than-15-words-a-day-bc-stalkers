@@ -273,6 +273,8 @@ i went out to get coffee and the traffic is just not good 🥹
 
 https://twitter.com/ayeejuju/status/1738972353848336605 🥺 did it even snow all year, i dont remember
 
+i have the energy for my spin bike workout but i also just want to watch tv in bed lol
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
