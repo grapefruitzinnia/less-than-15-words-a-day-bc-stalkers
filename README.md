@@ -275,6 +275,8 @@ https://twitter.com/ayeejuju/status/1738972353848336605 🥺 did it even snow al
 
 i have the energy for my spin bike workout but i also just want to watch tv in bed lol
 
+https://twitter.com/ZFellows_/status/1738574127449968687
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
