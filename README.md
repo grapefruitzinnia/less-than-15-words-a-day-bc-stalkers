@@ -271,6 +271,7 @@ https://twitter.com/valaafshar/status/1738718675232772317
 
 i went out to get coffee and the traffic is just not good 🥹
 
+https://twitter.com/ayeejuju/status/1738972353848336605 🥺 did it even snow all year, i dont remember
 
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
