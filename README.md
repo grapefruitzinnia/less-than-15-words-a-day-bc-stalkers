@@ -281,6 +281,8 @@ mom and dad made nihari for dinner 🥘
 
 trying to go in to the city this week for sooo many things including tacos, lets see if it happens
 
+ooo nicee https://twitter.com/poeticalphotos/status/1739448157908471846
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
