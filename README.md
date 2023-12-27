@@ -287,6 +287,8 @@ adding divan turkish bakery in bk to my list of places to check out when im in t
 
 https://www.newyorker.com/culture/cover-story/cover-story-2024-01-01 whats in the cup, is it a banana peel lol gross
 
+"lots of randos at the gym this morning" - my personal trainer this morning lolol why are there so many random people everywhere
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
