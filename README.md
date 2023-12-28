@@ -293,7 +293,7 @@ i tried half a cup of the panera caffeinated lemonade and its not good, tastes g
 
 wow interesting https://x.com/valaafshar/status/1740060535104618601
 
-
+oo someone made a subscription spreadsheet thats better than the one i use https://x.com/gokulns/status/1740331355844862078
 
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
