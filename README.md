@@ -289,6 +289,8 @@ https://www.newyorker.com/culture/cover-story/cover-story-2024-01-01 whats in th
 
 "lots of randos at the gym this morning" - my personal trainer this morning lolol why are there so many random people everywhere
 
+i tried half a cup of the panera caffeinated lemonade and its not good, tastes gross, but it was the sugar free blood orange flavor, tasted like medicine lol
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
