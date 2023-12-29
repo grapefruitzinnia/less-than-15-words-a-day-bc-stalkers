@@ -297,6 +297,8 @@ oo someone made a subscription spreadsheet thats better than the one i use https
 
 im in the city today, rain and traffic earlier 🥹
 
+stopped by and got the chocolate baklava (i think it's chocolate?? its dark brown and has pistachios inside) from divan bakery yesterday, overall nice place, rain and nyc is not fun but atleast it wasnt cold out
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
