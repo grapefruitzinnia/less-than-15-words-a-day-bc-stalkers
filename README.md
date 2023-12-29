@@ -295,6 +295,8 @@ wow interesting https://x.com/valaafshar/status/1740060535104618601
 
 oo someone made a subscription spreadsheet thats better than the one i use https://x.com/gokulns/status/1740331355844862078
 
+im in the city today, rain and traffic earlier 🥹
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
