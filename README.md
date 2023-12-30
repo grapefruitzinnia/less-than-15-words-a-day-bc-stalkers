@@ -326,6 +326,11 @@ the personal trainer's manager said to me today that he likes that i show up eve
 | Almost everything else         | It's for my lawyers                                                                                                                                                              |
 
 
+# "Well ... I won't stop all of my pretending
+# That you'll come home
+# You'll be coming home someday soon" 
+## - Devendra Banhart
+
 # A wise man was once asked:
 # "Who do you value most among people?"
 # He replied: "The one whose manners are most noble,
