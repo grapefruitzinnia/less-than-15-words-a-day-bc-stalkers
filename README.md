@@ -305,6 +305,8 @@ renting a 3 hr movie to watch with my brother, is going to the theater better, d
 
 https://x.com/itsafronomics/status/1733108690339635510 that's not a good headline, i have to read the linked article later to understand how the author came up with that conclusion 🤔
 
+itunes says this is my most listened-to song of 2023 https://www.youtube.com/watch?v=NnBhBhJEc2Y
+
 the personal trainer's manager said to me today that he likes that i show up every week ... yeahhhhhh i dooo ... bc according to him, people dont care about themselves, i show up 2x a week and workout with my PT even though some days i dont want to, then i get sushi afterwards to reward myself, he says i have to keep working out on my bike at home too, which i do
 
 **The Process** or as I understand it:
