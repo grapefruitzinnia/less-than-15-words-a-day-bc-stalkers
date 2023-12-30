@@ -303,6 +303,8 @@ i think it is chocolate! it's so good 😍
 
 renting a 3 hr movie to watch with my brother, is going to the theater better, def not if its 3 hrs
 
+https://x.com/itsafronomics/status/1733108690339635510 that's not a good headline, i have to read the linked article later to understand how the author came up with that conclusion 🤔
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
