@@ -311,6 +311,8 @@ the personal trainer's manager said to me today that he likes that i show up eve
 
 i just took a test and i dont have covid, i was at target getting stuff and there was this guy carrying like so much medication cold/flu boxes ughhh i dont want to get sick 😰 im wearing a n95 mask now everywhere
 
+dad made biryani with saffron and mint, soo good
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
