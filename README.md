@@ -315,6 +315,8 @@ dad made biryani with saffron and mint, soo good
 
 https://ethw.org/Main_Page bored, reading through this
 
+some bone broth soup for lunch 🍜
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
