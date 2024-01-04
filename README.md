@@ -319,6 +319,8 @@ some bone broth soup for lunch 🍜
 
 authentic grandma pizza slice after leg day at the gym 
 
+https://www.traderjoes.com/home/products/pdp/a-trio-of-almonds-068794 these are sooo good
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
