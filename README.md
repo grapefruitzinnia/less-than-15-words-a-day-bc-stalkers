@@ -323,6 +323,7 @@ https://www.traderjoes.com/home/products/pdp/a-trio-of-almonds-068794 these are 
 
 https://twitter.com/duolingo/status/1741546812660383767 yeahh i got this email too lolol
 
+worked out, looking for some mushroom soup and/or mushroom coffee (never tried this) on amazon
 
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
