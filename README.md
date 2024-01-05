@@ -321,6 +321,9 @@ authentic grandma pizza slice after leg day at the gym
 
 https://www.traderjoes.com/home/products/pdp/a-trio-of-almonds-068794 these are sooo good
 
+https://twitter.com/duolingo/status/1741546812660383767 yeahh i got this email too lolol
+
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
