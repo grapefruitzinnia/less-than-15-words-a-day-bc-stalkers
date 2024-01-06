@@ -325,6 +325,8 @@ https://twitter.com/duolingo/status/1741546812660383767 yeahh i got this email t
 
 worked out, looking for some mushroom soup and/or mushroom coffee (never tried this) on amazon
 
+soo its going to rain and not snow which is good news
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
