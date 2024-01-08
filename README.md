@@ -329,6 +329,10 @@ soo its going to rain and not snow which is good news; no wait, now its snowing 
 
 reading some nonfiction important tech-ish books this week
 
+my goal for today is to do some running after lunch bc its been awhile 🥹
+
+im working on nomial behind the scenes, like im not really revealing what im working on until its safe to share, i have some good ideas
+
 **The Process** or as I understand it:
 0. find a problem worth spending time on solving
 1. figure out the ml model(s) you are interested in that best solves the problem
